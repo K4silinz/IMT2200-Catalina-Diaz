@@ -1,1 +1,1 @@
-# IMT2200-Catalina-Diaz
+# IMT2200-Catalina-Isabel-Diaz-Oyanedel
