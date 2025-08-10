@@ -1,1 +1,1 @@
-“Catalina-Isabel-Diaz-Oyanedel” 
+Catalina-Isabel-Diaz-Oyanedel
